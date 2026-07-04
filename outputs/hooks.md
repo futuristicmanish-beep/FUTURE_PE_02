@@ -2,25 +2,25 @@ MANISH GENTORA CAFE - SCROLL-STOPPING VIDEO HOOKS
 ==================================================
 
 1. CURIOSITY-BASED
-"I found Erode's hidden gem and now I'm gatekeeping... just kidding."
+"This Erode cafe has a secret menu item everyone's obsessed with..."
 
 ---
 
 2. RELATABLE/FUNNY
-"Me pretending I'll work from home vs. me at Manish Gentora again."
+"When your 'quick coffee' at Manish Gentora turns into three hours somehow."
 
 ---
 
 3. BOLD CLAIM
-"This cafe in Erode makes better coffee than Bangalore. I said it."
+"Manish Gentora has the best filter coffee in Tamil Nadu. Fight me."
 
 ---
 
 4. QUESTION-BASED
-"Why is nobody talking about Manish Gentora? Best cafe in Erode, hands down."
+"Is Manish Gentora actually worth the hype? I spent a week finding out."
 
 ---
 
 5. POV STYLE
-"POV: You finally found a cafe in Erode that gets it right."
+"POV: Your friend drags you to this Erode cafe and ruins every other cafe for you."
 
