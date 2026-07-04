@@ -20,3 +20,17 @@ SCRIPT 3: THE FOOD
 
 Okay, real talk—I didn't expect much from cafe food, but Manish Gentora totally proved me wrong. Their sandwiches? Fresh. Their pastries? Incredible. I had their masala toast last week and I literally can't stop thinking about it. Everything tastes homemade, you know? Not that frozen, reheated stuff. If you're hungry in Erode, this place hits different.
 
+---
+
+SCRIPT 4: THE COFFEE QUALITY
+(15-20 seconds)
+
+So I'm kinda picky about my coffee, right? And most places in town just... don't get it. But then I tried Manish Gentora's brew and wow. You can actually taste the quality—it's smooth, perfectly balanced, not bitter at all. Whether you want filter coffee or something fancy like a latte, they nail it every single time. This is now my coffee standard for Erode. Period.
+
+---
+
+SCRIPT 5: THE COZY VIBE/ATMOSPHERE
+(15-20 seconds)
+
+You know those places where you just feel... at home? That's Manish Gentora for me. The lighting is perfect, the seating is super comfy, and there's this warm, welcoming energy the moment you walk in. I literally brought my book here yesterday and lost track of time. No one's rushing you, no one's judging if you order just one coffee and stay for two hours. It's rare to find a space like this.
+
