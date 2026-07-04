@@ -1,7 +1,7 @@
 MANISH GENTORA CAFE - PLATFORM-SPECIFIC AD ADAPTATIONS
 =======================================================
 
-ORIGINAL SCRIPT (THE FOOD):
+ORIGINAL SCRIPT (SCRIPT 3: THE FOOD):
 Okay, real talk—I didn't expect much from cafe food, but Manish Gentora totally proved me wrong. Their sandwiches? Fresh. Their pastries? Incredible. I had their masala toast last week and I literally can't stop thinking about it. Everything tastes homemade, you know? Not that frozen, reheated stuff. If you're hungry in Erode, this place hits different.
 
 ---
@@ -13,13 +13,15 @@ VIDEO SCRIPT:
 Okay, real talk—I didn't expect much from cafe food, but Manish Gentora totally proved me wrong. Their sandwiches? Fresh. Their pastries? Incredible. I had their masala toast last week and I literally can't stop thinking about it. Everything tastes homemade, you know? Not that frozen, reheated stuff. If you're hungry in Erode, this place hits different.
 
 CAPTION:
-POV: You discover cafe food that actually slaps 🔥☕
+Not me being obsessed with cafe food now 😭🔥
 
-Manish Gentora in Erode is serving FRESH everything—no frozen nonsense. That masala toast? *chef's kiss* 🤌
+That masala toast from @manishgentora literally lives in my head rent free. Everything tastes HOMEMADE and fresh—no mid frozen stuff here ✨
 
-Tag someone who needs to try this 👇
+If you're in Erode and haven't been yet... what are you doing?? 
 
-#ManishGentora #ErodeEats #CafeVibes #FoodieFinds #TamilNaduCafe #FreshFood #CafeHopping #ErodeFood
+Tag your foodie bestie 👇
+
+#ManishGentora #ErodeEats #CafeFood #FoodieTikTok #TamilNaduFoodie #FreshFood #CafeHopping #ErodeCafe #FoodiesOfInstagram
 
 ---
 
@@ -30,15 +32,19 @@ VIDEO SCRIPT:
 Okay, real talk—I didn't expect much from cafe food, but Manish Gentora totally proved me wrong. Their sandwiches? Fresh. Their pastries? Incredible. I had their masala toast last week and I literally can't stop thinking about it. Everything tastes homemade, you know? Not that frozen, reheated stuff. If you're hungry in Erode, this place hits different.
 
 CAPTION:
-Found this gem in Erode and had to share! 💛
+I have to tell you about this cafe in Erode! �
 
-I'll be honest—I used to think cafe food was just "okay" at best. But Manish Gentora completely changed my mind. Everything from their sandwiches to their pastries tastes homemade and FRESH. The masala toast? I went back twice in one week! 😅
+So I'll admit—I never really got excited about cafe food. Most places serve the same reheated, frozen stuff, right? But Manish Gentora is completely different.
 
-If you're looking for a cafe in Erode that actually cares about quality food (not just reheated frozen stuff), this is your place. The atmosphere is cozy, the staff are friendly, and the food speaks for itself.
+Their sandwiches, pastries, even their masala toast... everything tastes genuinely FRESH and homemade. I'm not exaggerating when I say I've been thinking about that masala toast all week. 😅 My friends are probably tired of me talking about it!
 
-Have you been to Manish Gentora yet? What's your favorite thing on the menu? Drop a comment below! 👇
+What I love most is that you can tell they actually care about what they're serving. It's not just about filling you up—it's about giving you something delicious to enjoy in a warm, welcoming space.
 
-#ManishGentoraCafe #ErodeFood #SupportLocal #CafeLife #FreshFood #ErodeFoodie #TamilNaduEats
+If you're in Erode and looking for a cafe that serves real, quality food (not just coffee and cookies), Manish Gentora is the place. Support local businesses that actually put heart into what they do! ❤️
+
+Have you tried their food yet? What should I order next time? Let me know in the comments! 👇
+
+#ManishGentoraCafe #ErodeFood #SupportLocalBusiness #CafeLife #FreshFood #ErodeFoodie #TamilNaduEats #LocalCafe #CommunityFirst
 
 ---
 
@@ -49,13 +55,16 @@ VIDEO SCRIPT:
 Okay, real talk—I didn't expect much from cafe food, but Manish Gentora totally proved me wrong. Their sandwiches? Fresh. Their pastries? Incredible. I had their masala toast last week and I literally can't stop thinking about it. Everything tastes homemade, you know? Not that frozen, reheated stuff. If you're hungry in Erode, this place hits different.
 
 CAPTION:
-This Erode cafe proves cafe food CAN be amazing 🤯
+I wasn't expecting THIS from a cafe in Erode... 😳
 
-I didn't believe it either... until I tried their masala toast. Now I'm obsessed 😳
+Their masala toast changed my entire opinion on cafe food. EVERYTHING tastes homemade—not frozen, not reheated, just FRESH.
 
-Manish Gentora is serving FRESH, homemade-tasting food that hits different. No frozen stuff here!
+Manish Gentora is proof that cafe food can actually be incredible 🔥
 
-📍 Erode | 🔥 Worth the visit
+Have you tried it? 
 
-#ManishGentora #ErodeFood #CafeFood #FoodReview #Shorts
+📍 Manish Gentora, Erode
+⭐ Must-try: Masala Toast
+
+#ManishGentora #ErodeFood #CafeFood #FoodReview #TamilNaduFood #Shorts #FoodShorts
 
