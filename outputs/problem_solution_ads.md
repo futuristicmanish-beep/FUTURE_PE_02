@@ -1,23 +1,23 @@
 MANISH GENTORA CAFE - PROBLEM-SOLUTION-CTA AD SCRIPTS
 ======================================================
 
-SCRIPT 1: THE MEDIOCRE COFFEE PROBLEM
-(97 words)
+SCRIPT 1: THE COFFEE DISAPPOINTMENT PROBLEM
+(98 words)
 
-Tired of mediocre coffee that tastes like it came from a vending machine? Sick of cafes that rush you out the door after twenty minutes?
+Tired of paying for expensive coffee that tastes burnt and bitter? Sick of cafes using the same instant mix for every drink?
 
-Meet Manish Gentora—Erode's cafe that actually cares about your experience. We brew every cup with premium beans and genuine passion. Our cozy space welcomes you to stay as long as you need, whether you're working, relaxing, or catching up with friends. Real coffee. Real comfort. Real hospitality.
+Manish Gentora changes the game. We brew authentic filter coffee the traditional way and craft every espresso-based drink with precision and care. You'll actually taste the difference—smooth, rich, perfectly balanced. No shortcuts, no compromises. Just honest, quality coffee that respects your palate and your time.
 
-Visit Manish Gentora today and taste the difference. Find us in Erode—your new favorite spot is waiting.
+Come experience real coffee at Manish Gentora in Erode. Your taste buds deserve better—and we're here to deliver it.
 
 ---
 
-SCRIPT 2: THE BORING HANGOUT PROBLEM
-(95 words)
+SCRIPT 2: THE WORKSPACE STRUGGLE PROBLEM
+(96 words)
 
-Struggling to find a decent place to hang out in Erode? Tired of the same old spots with zero atmosphere and forgettable food?
+Working from home driving you crazy? Can't find a cafe in Erode with decent WiFi, comfortable seating, AND good coffee?
 
-Manish Gentora is your answer. We're the cafe where great vibes meet even better food and coffee. Fresh pastries, aromatic filter coffee, delicious snacks, and a warm atmosphere that makes you want to stay longer. Whether it's a casual catch-up or your daily coffee ritual, we've created the perfect space for it.
+Welcome to Manish Gentora—your new productive space. We've created the perfect work-friendly environment with cozy seating, reliable connectivity, and zero pressure to leave. Plus, our coffee and fresh snacks keep you energized all day. Whether you need to focus on a deadline or take calls in a professional setting, we've got you covered.
 
-Stop settling for boring. Visit Manish Gentora and discover where Erode hangs out.
+Stop fighting for space at crowded cafes. Visit Manish Gentora and get work done in comfort.
 
